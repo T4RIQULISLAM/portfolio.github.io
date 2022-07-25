@@ -1,1 +1,1 @@
-portfolio.github.io
+t4riqulislam.github.io
